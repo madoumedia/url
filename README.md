@@ -2,4 +2,4 @@
 
 # 麻豆传媒最新网址
 
-# https://madou.cam
+# https://madou.bar
